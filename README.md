@@ -1,3 +1,3 @@
 # hellowold
 hi there..
-![1689522190880](https://github.com/tonakur/hellowold/assets/19352073/3c9c40d3-0184-4fc0-9759-cb50ffe4dc4e)
+https://github.com/tonakur/hellowold/assets/19352073/4b08a16e-c5ec-4732-9b56-38ab238fa4a3
